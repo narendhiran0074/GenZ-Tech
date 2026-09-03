@@ -1,2 +1,0 @@
-# GenZ-Tech
-
